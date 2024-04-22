@@ -1,0 +1,1 @@
+# TA-DW-22DX-THE-GANZ
